@@ -6,7 +6,7 @@
 
 *you died when my mother died* 
 
-<a href="https://rentry.co/aiucard-tepes">𓆩𓆪</a> 
+<a href="https://rentry.co/aiucard-tepes">𓆩rentry𓆪</a> 
 
 
  </div>
